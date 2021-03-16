@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Viral1339
+- 👀 I’m interested in soccer, business/entrepreneurship, and working out.
+- 🌱 I’m currently learning frontend development.
+- 💞️ I’m looking to collaborate on websites.
+- 📫 How to reach me is DMing me on Discord. @Viral#1339
